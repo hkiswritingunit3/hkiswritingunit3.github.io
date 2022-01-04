@@ -39,6 +39,11 @@ Throughout history, people have written about intelligent flying objects and hav
 
 In modern times, many people took pictures of them, and you can find videos of them online. Some of these videos were officially released by governments as authentic videos.
 
+In recent years, with the increase in knowledge about UFOs, different communities now use these different terms:
+
+* Unidentified Aerial Phenomena (UAP) (see: [NASA FAQ: Unidentified Aerial Phenomena (UAPs/UFOs)](https://www.nasa.gov/feature/faq-unidentified-aerial-phenomena-uapsufos/)])
+
+* Unidentified Submerged Objects (USO) (see: [Popular Mechanics: The Bizarre History of Underwater USOs](https://www.popularmechanics.com/military/weapons/a29417939/unidentified-submarine-objects/))
 
 ### Historic UFO sightings
 
