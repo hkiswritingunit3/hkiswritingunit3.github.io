@@ -92,19 +92,19 @@ Do people know about this?
 The US government has actually been secretly studying UFOs for many decades, with information only becoming clear now with declassified documents:
 
 What was the first US government project on studying UFOs?
-* Project Sign was the first operated project for finding information about UFOs. The project ended in 1949 and succeeded by Project Grudge.
+* [Project Sign](https://en.wikipedia.org/wiki/Project_Sign) was the first operated project for finding information about UFOs. The project ended in 1949 and succeeded by Project Grudge.
 
-What is Project Grudge?
+What is [Project Grudge](https://en.wikipedia.org/wiki/Project_Grudge)?
 * Project Gruge was a project of the US Air Force to study UFOs. It was started in 1949 and
 ended in 1951, succeeded by Project Blue Book.
 
-What is Project Blue Book?
+What is [Project Blue Book](https://en.wikipedia.org/wiki/Project_Blue_Book)?
 * Project Blue Book is a secret committee that writes reports on UFOs for the US government. It started in 1952 as a sucessor to Project Grudge. It officially closed in 1969 but operated until 1970. 
 
-What is the "Advanced Aerospace Threat Identification Program" (AATIP)?
+What is the ["Advanced Aerospace Threat Identification Program" (AATIP)](https://en.wikipedia.org/wiki/Advanced_Aerospace_Threat_Identification_Program)?
 * AATIP is the successor to Project Blue Book, started in 2007 and ended in 2012.
 
-What is the "UAP Task Force" (UAPTF)?
+What is the ["UAP Task Force" (UAPTF)](https://en.wikipedia.org/wiki/Unidentified_Aerial_Phenomena_Task_Force)?
 * UAPTF is the public successor of AATIP, started in 2020. In between 2012 and 2020, a governmental program succeeded AATIP but the name of the group is not publicly known.
 
 What happened between Project Blue Book and AATIP?
