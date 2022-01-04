@@ -39,11 +39,11 @@ But had some unique characteristics that raise questions on whether she comes fr
 
 In addition, she carried a special box that she would not share with the fisherman.
 
-![『兎園小説』(Rabbit garden novel) by 滝沢琴嶺（宗伯）(Kotomine Takizawa (Soeki)) (1825)](/images/history-utsuro-bune-3.jpg "Utsuro-bune by Kotomine Takizawa (1825)"))
+![『兎園小説』(Rabbit garden novel) by 滝沢琴嶺（宗伯）(Kotomine Takizawa (Soeki)) (1825)](/images/history-utsuro-bune-3.jpg "Utsuro-bune by Kotomine Takizawa (1825)")
 
 It must have looked like this back then!
 
-![Utsuro-bune illustration from https://morezprav.cz/konspirace/je-japonska-legenda-dukazem-setkani-s-mimozemstankou](/images/history-utsuro-bune-5.jpg "Utsuro-bune illustration"))
+![Utsuro-bune illustration from https://morezprav.cz/konspirace/je-japonska-legenda-dukazem-setkani-s-mimozemstankou](/images/history-utsuro-bune-5.jpg "Utsuro-bune illustration")
 
 ## Reference
 
