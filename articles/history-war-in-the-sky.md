@@ -24,8 +24,8 @@ As Wikipedia puts it:
     cylindrical objects from which several small spheres emerged and darted 
     around the sky at dawn.
 
-Interestingly, "black triangle" space crafts have also been sighted in modern times. There are theories that a black triangle is a man-made spaceship, but there are also theories that the black triangle is a craft of a non-human origin.
-
+Interestingly, "black triangle" space crafts have also been sighted in modern times.
+There are theories that a black triangle is a man-made spaceship (some call it "Project Aurora" or "TR-3B"), but there are also theories that the black triangle is a craft of a non-human origin.
 
 
 ## Reference

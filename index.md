@@ -32,23 +32,11 @@ There may be many, many living worlds outside ours. And those living things ther
 
 There has been many histories about non-human gods, and they might carry some (or all) truth in them.
 
-There have been many UFO sightings in history, and quite a number of them have their accounts documented or painted. These are four very famous ones.
+There have been many UFO sightings in history, and quite a number of them have their accounts documented or painted. Here are some very famous ones.
 
-1. [War in the sky](/articles/history-war-in-the-sky)
-2. Sumarian Gods
-3. Utsuro-bune Story
-4. Chinese Story
-
-https://en.wikipedia.org/wiki/Utsuro-bune
-Japanese: https://commons.wikimedia.org/wiki/File:Utsuro-Bune-Manjudō-Drifted-Ashore-on_Fief-of-Lord-Ogasawara.png
-
-
-https://www.nspirement.com/2018/10/25/the-earliest-chinese-painting-depicting-a-ufo.html
-Chinese: https://zh.wikipedia.org/zh-hk/赤焰騰空事件
-English: https://en.wikipedia.org/wiki/Chi_yan_teng_kong
-
-
-
+1. [War in the sky (Nuremberg, now Germany)](/articles/history-war-in-the-sky)
+2. [Utsuro-bune (Japan)](/articles/history-utsuro-bune)
+3. [Flame in the sky (China)](/articles/history-flame-in-sky)
 
 
 ### Many people have seen UFOs
