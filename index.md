@@ -34,7 +34,7 @@ There has been many histories about non-human gods, and they might carry some (o
 
 There have been many UFO sightings in history, and quite a number of them have their accounts documented or painted. These are four very famous ones.
 
-1. War in the Sky. 
+1. [War in the sky](/articles/history-war-in-the-sky)
 2. Sumarian Gods
 3. Utsuro-bune Story
 4. Chinese Story
