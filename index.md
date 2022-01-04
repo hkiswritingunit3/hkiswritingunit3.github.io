@@ -122,3 +122,9 @@ If you are interested in UFOs, there are a lot more details that you can find. T
 Ask your parents to help your journey into the UFO world. Or come look for me in Ms. Bedard's class in 712.
 
 Hope you enjoyed this site. Thank you for checking out - bye!!
+
+## References
+
+* [The Black Vault](https://www.theblackvault.com)
+
+* [US Department of Defense: Establishment of the UAP Task Force](https://www.defense.gov/News/Releases/Release/Article/2314065/establishment-of-unidentified-aerial-phenomena-task-force/)
