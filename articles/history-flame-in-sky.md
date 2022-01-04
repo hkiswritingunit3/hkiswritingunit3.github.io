@@ -7,8 +7,6 @@ There are many historic accounts in Chinese history about flying objects of unkn
 The incident of "flame in the sky" (赤焰騰空, "chi yan teng kong") describes a UFO
 mass sighting in Jinling city (now Nanjing city) on 1892 November 17th.
 
-![Wikipedia: Wu Youru, "Chi Yan Teng Kong"](/images/history-flame-in-sky.jpg "Wikipedia: Wu Youru, "Chi Yan Teng Kong")
-
 ## Story
 
 As described by Wu Youru in his "tale of the red flame in sky" (赤焰騰空記) article :
@@ -46,6 +44,8 @@ Translated into English:
     An old man said, when the ball of flame first came to appear, there was a
     very faint sound that can only heard in slience, and that the flame flew in
     over the south gates. Ha, how strange!
+
+![Wikipedia: Wu Youru, "Chi Yan Teng Kong"](/images/history-flame-in-sky.jpg "Wikipedia: Wu Youru, "Chi Yan Teng Kong")
 
 As we can see in Wu's illustration, the ball of flame is shown in the top right
 corner. With hundreds of witnesses on the bridge at that period, there does 
