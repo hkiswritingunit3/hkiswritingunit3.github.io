@@ -128,6 +128,9 @@ Ask your parents to help your journey into the UFO world. Or come look for me in
 
 Hope you enjoyed this site. Thank you for checking out - bye!!
 
+P.S. Some people say that the UFOs, or "USOs" are made by aliens living under our oceans, who have
+been on Earth a lot longer than humans have. That would be wow!
+
 ## References
 
 * [The Black Vault](https://www.theblackvault.com)
